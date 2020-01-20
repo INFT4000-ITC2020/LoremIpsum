@@ -1,6 +1,12 @@
 # LoremIpsum
 Jan 20th Demo of Merge Conflict
 
+That's the most fun of all. Don't be afraid to go out on a limb once in a while. Truly the joy of painting is the friends that you make doing it. Everybody needs to sing in the sunshine!
+
+Just practice, and you really can do this. Soft as a meadow. Let's play some games! You've got to have a little sadness once in awhile to let you know when the good times come.
+
+That's a fantastic little cloud. We'll just sort of see what happens. See how easy that was? That was so much fun! Let's get crazy!
+
 Spicy jalapeno bacon ipsum dolor amet laboris cupidatat andouille, pariatur eiusmod veniam beef. Consequat bacon cupidatat, strip steak tail cupim andouille lorem short loin sirloin proident excepteur. Swine exercitation biltong, tail velit pig drumstick rump turducken leberkas t-bone. Jerky sint shoulder short ribs laboris. Rump excepteur meatloaf duis doner, minim laboris landjaeger chicken ground round irure pork belly tenderloin t-bone.
 
 Ea mollit ipsum, magna cow tempor pork belly bacon excepteur deserunt duis lorem capicola. Aliquip ullamco chislic sunt t-bone mollit pancetta fatback cillum laboris incididunt commodo excepteur pastrami et. Beef ribs swine adipisicing kevin, biltong ex ut dolor cow. Ut bacon quis veniam sint landjaeger andouille qui nisi buffalo. Shankle sirloin tenderloin boudin, ground round dolore est ut sunt nostrud bresaola laboris.
